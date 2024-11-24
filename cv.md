@@ -8,7 +8,7 @@
 **Phone:** +7 705 715 65 74<br>
 **E-mail:** didarmaratov04@gmail.com<br>
 **Telegram:** @d3drrr<br>
-[LinkedIn](https://www.linkedin.com/in/didar-auyesbay-370b0a281/)<br>
+[LinkedIn](https://www.linkedin.com/in/didar-auyesbay-370b0a281/) <br>
 
 ---
 
